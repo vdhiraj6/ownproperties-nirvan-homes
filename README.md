@@ -1,1 +1,1 @@
-# ownproperties-nirvan-homes
+# nirvana-landing-page
